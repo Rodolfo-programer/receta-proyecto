@@ -1,1 +1,1 @@
-# receta-proyecto-privado-
+# receta-proyecto-
